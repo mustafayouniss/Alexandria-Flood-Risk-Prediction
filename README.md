@@ -376,7 +376,9 @@ This project is licensed under the **MIT License** — see the [LICENSE](LICENSE
 
 <br/>
 
-**Built with 💙 for Alexandria's resilience against climate change**
+**Built with passion for  Alexandria's resilience against climate change** ❤️
+
+**Author:** Mustafa Younis · May 2026
 
 <br/>
 
